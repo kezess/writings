@@ -3,7 +3,7 @@
   # Escritos
   
   
-<img src="https://kuon.s-ul.eu/pmGc4x3D" height="300" align="center">
+<img src="https://kuon.s-ul.eu/pmGc4x3D" align="center">
 
 .
 
