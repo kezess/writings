@@ -6,7 +6,7 @@
 <img src="https://kuon.s-ul.eu/pmGc4x3D" align="center">
 </td></tr></table>
 
-<table align="left"><tr><td align="center" width="500">
+<table align="left"><tr><td align="center" width="300">
   
   ### gélida cama, caos ardente - pt. 1
   
